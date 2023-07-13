@@ -1,4 +1,4 @@
-Chapter 3: Setting Personal Goals and Objectives: Techniques for Setting Personal Goals and Objectives
+Techniques for Setting Personal Goals and Objectives
 ======================================================================================================
 
 In this chapter, we will explore techniques for setting personal goals and objectives. We will discuss the importance of setting specific and measurable goals, techniques such as SMART goal-setting, and how to use these techniques to develop effective personal growth objectives.

@@ -1,4 +1,4 @@
-Chapter 6: Cultivating Positive Relationships and Networks: Effective Communication and Conflict Resolution Skills
+Effective Communication and Conflict Resolution Skills
 ==================================================================================================================
 
 In this chapter, we will explore the importance of effective communication and conflict resolution skills in cultivating positive relationships and networks. We will discuss the impact of poor communication and conflict resolution on relationships, and provide strategies for improving communication and resolving conflicts in a positive way.

@@ -1,4 +1,4 @@
-Chapter 6: Cultivating Positive Relationships and Networks: Building Supportive and Accountable Communities
+Building Supportive and Accountable Communities
 ===========================================================================================================
 
 Cultivating positive relationships and networks is essential for achieving personal success. Our relationships and networks can provide us with the support, guidance, and accountability we need to overcome obstacles and achieve our goals. In this chapter, we will discuss how to build supportive and accountable communities that will help us on the pathway to personal success.

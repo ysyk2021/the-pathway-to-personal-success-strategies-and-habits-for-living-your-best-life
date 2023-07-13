@@ -1,4 +1,4 @@
-Chapter 5: Navigating Obstacles and Overcoming Setbacks: Techniques for Navigating Obstacles and Overcoming Setbacks
+Techniques for Navigating Obstacles and Overcoming Setbacks
 ====================================================================================================================
 
 No matter how well we plan, obstacles and setbacks are an inevitable part of life. They can be discouraging and make us feel like giving up on our personal success goals. However, with the right techniques, we can navigate obstacles and overcome setbacks to continue on the pathway to personal success. In this chapter, we will discuss some effective techniques for navigating obstacles and overcoming setbacks.

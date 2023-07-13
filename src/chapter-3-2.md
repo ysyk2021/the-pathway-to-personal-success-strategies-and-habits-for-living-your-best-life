@@ -1,4 +1,4 @@
-Chapter 3: Setting Personal Goals and Objectives: Defining Personal Values and Priorities
+Defining Personal Values and Priorities
 =========================================================================================
 
 In this chapter, we will explore the importance of defining personal values and priorities in setting personal goals and objectives. We will discuss techniques for identifying personal values and priorities, the importance of aligning these with personal growth objectives, and how to use these insights to develop effective personal growth objectives.

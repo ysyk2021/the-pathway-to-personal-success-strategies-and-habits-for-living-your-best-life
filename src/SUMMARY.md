@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining the Importance of Personal Success](chapter-1-1.md)
   - [The Benefits and Challenges of Pursuing Personal Success](chapter-1-2.md)
   - [Why Understanding the Pathway to Personal Success is Critical for Fulfillment and Happiness](chapter-1-3.md)
@@ -33,9 +32,5 @@
   - [Techniques for Addressing Ethical Considerations](chapter-8-1.md)
   - [Respecting Diversity and Inclusivity](chapter-8-2.md)
   - [Avoiding Narcissism and Selfishness](chapter-8-3.md)
-- [Chapter 9: Conclusion](chapter-9.md)
-  - [Recap of Key Points and Strategies](chapter-9-1.md)
-  - [Final Recommendations for Personal Success](chapter-9-2.md)
-  - [Future Directions for Research and Practice](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

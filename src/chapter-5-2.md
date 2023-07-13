@@ -1,4 +1,4 @@
-Chapter 5: Navigating Obstacles and Overcoming Setbacks: Building Resilience and Coping Skills
+Building Resilience and Coping Skills
 ==============================================================================================
 
 No matter how well we plan, unexpected obstacles and setbacks are an unavoidable part of life. These challenges can be difficult to navigate, but they also present an opportunity for growth and development. In this chapter, we will discuss how to build resilience and coping skills that will help us overcome adversity and achieve personal success.

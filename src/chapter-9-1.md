@@ -1,4 +1,4 @@
-Chapter 9: Conclusion: Recap of Key Points and Strategies
+Recap of Key Points and Strategies
 =========================================================
 
 In this final chapter, we will recap the key points and strategies discussed throughout the book. We will summarize the importance of defining personal success, approaching personal success in a way that prioritizes personal growth and development, and setting effective personal growth objectives. We will also highlight the importance of resilience, self-awareness, and self-care techniques in achieving personal success.

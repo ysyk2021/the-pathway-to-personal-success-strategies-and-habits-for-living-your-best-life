@@ -1,4 +1,4 @@
-Chapter 3: Setting Personal Goals and Objectives: Creating a Personal Mission Statement
+Creating a Personal Mission Statement
 =======================================================================================
 
 In this chapter, we will explore techniques for setting personal goals and objectives through the creation of a personal mission statement. We will discuss the importance of aligning personal values with personal growth objectives, techniques for creating a personal mission statement, and how to use this mission statement to guide decision-making and goal-setting.

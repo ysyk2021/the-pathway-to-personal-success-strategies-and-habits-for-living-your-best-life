@@ -1,4 +1,4 @@
-Chapter 8: Ethical Considerations in Pursuing Personal Success: Avoiding Narcissism and Selfishness
+Avoiding Narcissism and Selfishness
 ===================================================================================================
 
 In this chapter, we will explore ethical considerations in pursuing personal success. We will discuss the importance of avoiding narcissism and selfishness in the pursuit of personal growth and development.

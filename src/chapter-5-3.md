@@ -1,4 +1,4 @@
-Chapter 5: Navigating Obstacles and Overcoming Setbacks: Managing Negative Self-Talk and Limiting Beliefs
+Managing Negative Self-Talk and Limiting Beliefs
 =========================================================================================================
 
 In this chapter, we will discuss how to navigate obstacles and overcome setbacks on the pathway to personal success. We will explore the role of negative self-talk and limiting beliefs in hindering progress, and provide strategies for managing and overcoming them.

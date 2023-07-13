@@ -1,4 +1,4 @@
-Chapter 7: Measuring and Evaluating Personal Success: Metrics for Measuring Personal Success
+Metrics for Measuring Personal Success
 ============================================================================================
 
 In this chapter, we will explore metrics for measuring personal success. We will discuss the importance of setting measurable goals and tracking progress towards personal growth objectives.
