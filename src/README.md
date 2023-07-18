@@ -8,5 +8,4 @@ Whether you're looking to advance your career, improve your personal relationshi
 
 If you're ready to transform your life and achieve personal success, "The Pathway to Personal Success" is the perfect roadmap for your journey. So, come along and discover the strategies and habits that will help you live your best life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
