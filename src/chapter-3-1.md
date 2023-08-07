@@ -47,5 +47,3 @@ Accountability plays a significant role in goal setting. Share your goals with o
 Life is unpredictable, and circumstances may change along your journey. It's crucial to remain flexible and adaptable in the face of unforeseen challenges or opportunities. Be open to adjusting your goals when necessary without losing sight of your long-term vision.
 
 Remember, goal setting is an ongoing process. As you achieve one set of goals, new ones will emerge. Embrace this continuous growth mindset, and let it fuel your determination to live your best life.
-
-In the next chapter, we will explore powerful strategies for maintaining motivation and overcoming obstacles.
