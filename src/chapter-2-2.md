@@ -1,5 +1,3 @@
-The Impact of Personal Success on Mental Health and Well-being
-=========================================================================
 
 In today's fast-paced and demanding world, personal success is often viewed as the ultimate goal. However, amidst our pursuit of achievements, it is vital to understand the profound impact that personal success can have on our mental health and overall well-being. This chapter aims to explore the intricate relationship between personal success and its influence on our mental well-being.
 

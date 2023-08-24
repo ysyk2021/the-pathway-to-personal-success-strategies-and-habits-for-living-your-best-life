@@ -1,5 +1,3 @@
-Managing Negative Self-Talk and Limiting Beliefs
-=========================================================
 
 Negative self-talk and limiting beliefs can significantly hinder our personal growth and success. They can hold us back from reaching our full potential, causing self-doubt and preventing us from pursuing our dreams. In this chapter, we will explore effective strategies and habits for managing negative self-talk and overcoming limiting beliefs.
 

@@ -1,5 +1,3 @@
-Creating a Personal Mission Statement
-==============================================
 
 In this chapter, we will explore the importance of creating a personal mission statement and how it can serve as a guiding light in achieving personal success. A personal mission statement is a concise statement that reflects your core values, goals, and purpose in life. It acts as a compass, helping you make decisions, set priorities, and stay focused on what truly matters to you.
 

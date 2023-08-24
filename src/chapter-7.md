@@ -1,5 +1,3 @@
-Chapter 7: Measuring and Evaluating Personal Success
-====================================================
 
 In order to live our best life, it is important to have a clear understanding of what personal success looks like for us individually. However, simply defining personal success is not enough. We must also establish metrics for measuring our progress towards achieving our goals and evaluate our performance and growth over time. In this chapter, we will discuss the key components of measuring and evaluating personal success.
 

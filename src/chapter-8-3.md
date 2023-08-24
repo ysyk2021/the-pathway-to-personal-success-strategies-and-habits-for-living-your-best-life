@@ -1,5 +1,3 @@
-Avoiding Narcissism and Selfishness
-============================================
 
 In our journey towards personal success, it is crucial to develop healthy habits and strategies that promote not only individual growth but also the well-being of those around us. One significant hurdle on this path is the potential emergence of narcissistic tendencies and selfish behavior. In this chapter, we will explore the detrimental effects of narcissism and selfishness, and learn how to avoid falling into these patterns.
 

@@ -1,5 +1,3 @@
-Techniques for Setting Personal Goals and Objectives
-=============================================================
 
 Setting personal goals and objectives is a crucial step towards achieving success and living your best life. By having clear targets to work towards, you can stay motivated, focused, and track your progress effectively. In this chapter, we will explore various techniques that can help you in setting meaningful and achievable goals.
 

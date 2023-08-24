@@ -1,5 +1,3 @@
-Chapter 3: Setting Personal Goals and Objectives
-================================================
 
 In this chapter, we will explore techniques for setting personal goals and objectives. We will discuss the importance of defining personal values and priorities, creating a personal mission statement, and using SMART goal-setting techniques to develop effective personal growth objectives.
 

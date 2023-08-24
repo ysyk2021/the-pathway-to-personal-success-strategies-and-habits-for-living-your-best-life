@@ -1,5 +1,3 @@
-Respecting Diversity and Inclusivity
-====================================================================================================
 
 In this chapter, we will explore ethical considerations related to respecting diversity and inclusivity in pursuing personal success. We will discuss the importance of valuing differences among individuals and promoting a culture of inclusivity.
 

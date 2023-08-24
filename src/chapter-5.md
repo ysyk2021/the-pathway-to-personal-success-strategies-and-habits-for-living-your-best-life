@@ -1,5 +1,3 @@
-Chapter 5: Navigating Obstacles and Overcoming Setbacks
-=======================================================
 
 In this chapter, we will explore techniques for navigating obstacles and overcoming setbacks on the pathway to personal success. We will discuss the importance of building resilience and coping skills, managing negative self-talk and limiting beliefs, and how to use these techniques to overcome challenges and achieve personal growth objectives.
 
